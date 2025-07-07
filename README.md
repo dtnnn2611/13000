@@ -28,4 +28,4 @@
 五、持续更新与用户社区
 部分平台设有用户交流区，影迷们可以分享最新免费资源、观影心得，增强互动体验。同时，平台不断更新内容，确保你能够及时看到最新、最热门的日本AV作品。
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnnn2611/13000 ）</span>
